@@ -1,1 +1,2 @@
-# the-max-level-hero-has-returned
+# The Max Level Hero has Returned
+Le faible prince d’un pays insignifiant, Davey. Après être devenu comateux, son âme s’échappa dans un temple où se rassemblaient les âmes des héros. Il s’est entraîné pendant mille ans et est maintenant revenu comme un héros de niveau max! « Attendez, je vais vous faire face! » L’histoire rafraîchissante de la vie royale et de la vengeance de Davey vient de commencer.
